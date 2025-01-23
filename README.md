@@ -41,7 +41,3 @@ Gostou do conteúdo ou tem alguma sugestão? Entre em contato com Veluma Marcela
 ✉️ **contatovelumamarcela@gmail.com**
 
 Agradecemos pelo interesse no Blog Veluma Marcela e esperamos que o conteúdo seja uma fonte de inspiração e aprendizado para você!
-
----
-
-Se precisar de ajustes ou quiser incluir mais informações, é só avisar! 😊
